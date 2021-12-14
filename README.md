@@ -28,6 +28,10 @@ I personally had the chance to Connect with a family member that lives in anothe
 
 Also early this month, we Partnered with a well know business guru and nutritionist that holds many patents that will help usb network and connect the dots for a mutually positive benefit and awareness campaign.  All to take place and start after the new year.  Then I can relay more details to everyone.
 
-Looking forward
+We are all Looking forward for this and much much more,
+Have a wonderful holiday and a Merry Christmas!
 
+--------------------
+-------------------------
+------------------------------
 
